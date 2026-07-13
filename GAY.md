@@ -13,4 +13,6 @@ Weakness : พี่เตไม่มีจุดอ่อน
 RANK : 😡
 Quote : https://chatgpt.com/ 
 
+By N'Safe
+
 
