@@ -1,7 +1,7 @@
 Giga-chad Antony Yippe (GAY)
 
 Head : พี่เตวรากร (หน้าโกรธ) + หูแมว
-Body : ชุดเมด
+Body : Go Gopher
 Weapons : No need 
 
 Skills : อร่อย
